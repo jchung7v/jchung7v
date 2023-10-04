@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Juan Chung!
+# 👋 Hi, I’m Ju An Chung!
 
 ### I love to solve problems creatively 🪄
 
